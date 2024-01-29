@@ -1,0 +1,1 @@
+ceci est mon code mais, n'est pas détaillé comme celui de la prof , si ça peut vous aider
